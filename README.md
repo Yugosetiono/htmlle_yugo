@@ -1,1 +1,1 @@
-yugo setiono
+yugo setiono sija 1
