@@ -1,1 +1,1 @@
-yugo setiono sidarata banjarnegara
+yugo banjar
